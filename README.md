@@ -1,0 +1,1 @@
+# kersea-favorite-places
